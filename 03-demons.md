@@ -2,7 +2,9 @@
 
 - Why "Lament"?
 - Commonalities through the hierarchy.
-- Ten Unquestionables with three citizens each.
+- Eight Unquestionables with three citizens each.
+- One Unquestionable with all seven souls.
+- Skip the fetich
 - Each Lament corresponds to one of Isaia's Lamentations.
 - Arbitrarily include artifacts and serfs in Unquestionable blocks.
     - BLADE MCIRON

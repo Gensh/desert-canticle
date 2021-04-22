@@ -7,3 +7,4 @@
 - Monastic game with no real action – a vehicle for character exploration.
 - Social game about herding cats.
 - Crossing the Desert into other Shards.
+- Caravan – some players need and enjoy a railroad.
