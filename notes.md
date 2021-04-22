@@ -1,0 +1,26 @@
+- "Desire is the natural state of hte intellect, for without desire for God there is no love."
+    - Positive content of other passions: zeal, anger, hatred, pride
+    - Distorted from natural to shameful
+- Neglect vs Attention; Repentance; Virtues of Sorrow and Pain; Humility "Do not measure yourself"
+- Balance
+- Control passions and enable virtues to develop through imitation of Christ
+    - Become apathetic/dispassionate
+    - Lose passions which hinder spiritual ascent and intellect
+- Sins: avarice, love of worldly things, desire to dominate, greed, impurity, jealousy, lethargy, negligence, vainglory, wish to hold on to one's own will
+- Repentance and compunction
+    - Hold sins, death, nad fear of judgment before eyes at all times
+    - Don't become preoccupied with sins of others
+    - Fear of God through humility
+    - Won't be forgiven a second time
+- Gehenna
+- "Everything lies naked and exposed to the eyes of the one with whom we have to reckon."
+- "Do not speak at all in the refectory or church, unless there is great urgency, nor correct anyone who is chanting, unles he asks you something."
+- "do not be concerned with each other's manual work, whether your brother has achieved more than you, or you more than he"
+- "Ambition, also, is hte natural state of the intellect for without ambition there is no progress toward God, as it is written in the epistle, _be ambitious for the higher gifts_."
+- "If you hear about a weakness of your brother, do not tell it to anyone, for this will lead to your (spiritual) death."
+- "If a brother obliges you to slander someone, do not pretend to be modest or convinced by him, otherwise you sin against God. Instead, say to him in humility, 'Forgive me, brother, but I am wretched and all that you say, in fact, describes me, and so I cannot bear to hear it'".
+- "If you have left your natural relatives in order to be in isolation for the sake of God, do not allow the pleasure of their rememberance to come to you while you are sitting in your cell, feeling pity for your father or mother, or remembering your brother or sister, or perhaps feeling compassion for your child or wife in your heart, for you have left all these behind. Instead, remember your departure in relation to the urgency of your death when none of these people will help you. Why should you not leave them behind for the sake of virtue?"
+- "If you lead an ascetic life, do not let your heart take confidence that it is protecting you, but think to yourself, 'It is because of the mortification of my body that God hears my misery'".
+- "If the demons convince your heart to undertake some ascetic discipline that is beyond your capacity, do not listen to them, for they always arouse us in whatever matter we cannot achieve, until we fall into their hands at their pleasure."
+- "If you are leading a life of ascetic discpline for the sake of God and people become envious of you, or honor you in regard to this, then leave this discipline and embark upon another, so that your toil may not be in vain".
+- "Before all else, the first struggle is exile; especially if you have fled alone, then the struggle is to leave your own and move to another place, bearing perfect faith and hope, as well as a stable heart with regard to your own desires, for thoughts will completely encircle you, frightening you about templatations, hardships in poverty, and illnesses, suggesting to you questions about how you will cope with these if you have no one who cares for, or knows you. [...] Those who endure the tribulation of exile are brougth to the virtue of hope, and this hope protects them, at least partially, from fleshly desire, for you are not in exile for its own sake, but in order to prepare yourself, and have time to struggle against the enemy, so that you may learn how to reject eeach foe in its time, until you reach the rest of dispassion and are liberated as a result of being victorious at each battle, in its own time."
