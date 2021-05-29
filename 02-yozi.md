@@ -25,6 +25,7 @@
     - Kimbery and liminality and that one cult that ships them.
     - Qaf stealing her gimmick.
     - Cytherea stealing her gimmick.
+    - Replacing Adrian as the border
     - Religion and death and the Neverborn.
     - Stealing from Autochthon again.
     - Keeping Sacheverell asleep.

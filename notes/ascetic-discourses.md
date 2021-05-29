@@ -1,4 +1,4 @@
-- "Desire is the natural state of hte intellect, for without desire for God there is no love."
+- "Desire is the natural state of the intellect, for without desire for God there is no love."
     - Positive content of other passions: zeal, anger, hatred, pride
     - Distorted from natural to shameful
 - Neglect vs Attention; Repentance; Virtues of Sorrow and Pain; Humility "Do not measure yourself"

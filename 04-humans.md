@@ -7,7 +7,7 @@
     - Gunda
     - Lolat
     - Kris Klaus
-    - Mystery cults
+- Mystery cults
 - Other Exalted
     - Anys Syn was funny but weak shit. Lucien was proud of Kejak for beating her ass.
     - The Bishop gets it but then drinks the kool-aid anyway.
